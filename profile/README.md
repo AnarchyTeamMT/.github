@@ -18,9 +18,9 @@ Members:
 
 8. Gregor
 
-9.jub2884
+9. jub2884
 
-10.AB-MT
+10. AB-MT
 
 11. poswain
 
