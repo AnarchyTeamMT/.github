@@ -2,7 +2,7 @@ Welcome to the TeErAnUs organization page. We are developers of hacked clients l
 
 Members:
 
-1.BotBoyM1
+1. BotBoyM1
 
 2. markhakur
 
@@ -12,7 +12,7 @@ Members:
 
 5. SuddenK
 
-6.ninja_9
+6. ninja_9
 
 7. Clown_Pierce
 
