@@ -1,4 +1,4 @@
-Welcome to the TeErAnUs organization page. We are developers of hacked clients like TCC and others. Also, we are NOT A COPY OF TEERANU. We are part of this organization. By the way, we support the use of hacked clients on servers where these clients are banned, no one has done this before. Well, in general, we are always for breaking the rules, we are anarchists. 
+Welcome to the TeErAnUs organization page. We are developers of hacked clients like TCC and others. Also, we are NOT A COPY OF TEERANU. We are part of this organization. By the way, we support the use of hacked clients on servers where these clients are banned, no one has done this before. Well, in general, we are always for breaking the rules, we are anarchists. Join discord: https://discord.gg/SWfPPr5y
 
 Members:
 
