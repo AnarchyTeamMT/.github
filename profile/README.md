@@ -8,7 +8,7 @@ Members:
 
 3. jingoro
 
-4. ChanChy
+4. Chicory
 
 5. SuddenK(Anos_Voldigoad)
 
